@@ -1,1 +1,1 @@
-https://xxispectorxx.github.io/map_3d/
+https://hmdcrew.github.io/map_3d/
